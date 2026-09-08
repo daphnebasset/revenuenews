@@ -1,4 +1,4 @@
-Vagaro, a widely used platform for medical spa, beauty, wellness, and fitness businesses, has rolled out new medical spa software upgrades aimed at turning everyday treatment data into measurable business value. The rollout centers on stronger SOAP Notes and Custom Fields, both built to be HIPAA compliant while tightening up clinical workflows across the platform.
+Vagaro, a widely used platform for medical spa, beauty, wellness, and fitness businesses, has rolled out new [medical spa software](https://revtech-news.com/vagaro-expands-medical-spa-software-capabilities/) upgrades aimed at turning everyday treatment data into measurable business value. The rollout centers on stronger SOAP Notes and Custom Fields, both built to be HIPAA compliant while tightening up clinical workflows across the platform.
 
 "Having access to all the information, transaction lists, and dashboards has helped us make critical business decisions throughout the quarters and years," said Bailey Ames, Co-Founder of Lash + Company, a leading med spa enterprise.
 

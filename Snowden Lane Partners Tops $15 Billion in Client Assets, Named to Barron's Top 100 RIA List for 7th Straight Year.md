@@ -1,0 +1,15 @@
+[**Snowden Lane Partners**](https://revtech-news.com/snowden-lane-partners-surpasses-15b-in-assets/) an independent, advisor-owned wealth management firm known for its client-focused, values-driven culture, has reached a major milestone: total client assets have now crossed the $15 billion mark. Alongside this achievement, the firm has also secured a spot on Barron's Top 100 Registered Investment Adviser Firms list for the seventh year running, cementing its reputation as one of the more consistent performers in the independent advisory space.
+
+The growth behind this milestone has been substantial. Over the past year alone, Snowden Lane added $2.4 billion in client assets, a jump fueled largely by the addition of five new advisors to the firm's roster. To support that expansion, the company opened new offices in Houston, Texas, and Metuchen, New Jersey, broadening its physical footprint beyond its established hubs. The firm also strengthened its presence in Coral Gables, Florida, bringing on two additional advisors there — a move that reflects its ongoing push to serve international clients more effectively. Notably, the Coral Gables office has now grown into Snowden Lane's second-largest location, trailing only its New York headquarters.
+
+Rob Mooney, Managing Partner and CEO of Snowden Lane Partners, framed the milestone as the product of sustained, steady effort rather than a single breakthrough moment, crediting the trust both advisors and their clients have placed in the firm over time.
+
+Barron's ranking methodology weighs a mix of quantitative and qualitative factors, independently verified through advisory firms and regulatory databases. These include assets under management and the revenue those assets generate, a firm's regulatory track record, staffing levels and workforce diversity, technology investment, and succession planning — giving the ranking a fairly comprehensive view of firm health beyond just asset size.
+
+This latest milestone builds on a string of recent developments for the firm. Less than a year earlier, Snowden Lane had reported client assets of roughly $11.7 billion alongside record profitability, including 30% year-over-year revenue growth surpassing $80 million. That period also saw the firm buy back a significant equity stake from private equity sponsor Estancia Capital Partners, shifting roughly two-thirds of ownership back into the hands of its advisors and employees — a structural move that appears to align with the advisor-owned culture the firm continues to emphasize in its growth story.
+
+Headquartered in New York City, Snowden Lane operates both as an SEC-registered investment adviser and a FINRA-licensed broker-dealer, and it provides advisors with operational, financial, compliance, HR, and transition support as they join the firm.
+
+Discover [**RevTech News**](https://revtech-news.com/)  for the latest updates on financial innovation and revenue-driven technology.
+
+Read related news - [https://revtech-news.com/elucid-names-mark-miller-as-chief-revenue-officer/](https://revtech-news.com/elucid-names-mark-miller-as-chief-revenue-officer/)
